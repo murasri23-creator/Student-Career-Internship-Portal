@@ -1,0 +1,1 @@
+https://www.figma.com/proto/MCZK6zT97xTNNP6dka8nJv/WYNTRIX?page-id=0%3A1&node-id=345-632&p=f&viewport=1949%2C1145%2C0.08&t=kYsoC1yHDm7kfowj-1&scaling=scale-down&content-scaling=fixed&starting-point-node-id=345%3A632
